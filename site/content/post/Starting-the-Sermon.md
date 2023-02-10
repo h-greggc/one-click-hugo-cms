@@ -1,0 +1,39 @@
+---
+title: Starting the Sermon (Fourth Sunday after Epiphany)
+date: 2023-02-10T01:53:00.000Z
+description: Hello. The lesson is...
+---
+
+As a preacher, I often find that one of the hardest things I have to do is to figure out how to start a sermon. I want to set the tone. I want to draw people in. And I want to set the stage for people to think in big picture about the kinds of things I’m going to talk about. And so, from a professional standpoint, I’m always interested to see how other people start sermons!
+
+And in fact, that’s what Matthew has just done in today’s Gospel reading. These verses I just read are the beginning of what we call the “Sermon on the Mount.” It’s a sermon which begins with Jesus sitting down (which is the posture you assumed when you were going to teach) and his disciples gathering around him. And then Jesus begins to speak, and he goes on for 3 chapters!
+
+Now, in all likelihood, Jesus probably didn’t say all these things in one sermon. More likely, these three chapters are a collection of many things Jesus said and taught. But Matthew has put these sayings together and carefully chosen these “beatitudes” as the first part of this “sermon.”
+
+And so the “beatitudes” aren’t simply a collection of sayings about who’s blessed. Rather, these words set the tone for everything that follows in the next three chapters. Matthew saw in the beatitudes a big-picture vision of what all of Jesus’ teaching was about. And he wanted people to get in their hearts and heads a vision that would allow them to understand and appreciate more fully everything else Jesus had to say.
+
+So what is this “big picture” we’re supposed to get from the beatitudes?  What vision does it give us for what being a disciple of Jesus means?  How do these words help us to understand more fully the words that will come next?
+
+When viewed that way, I see at least 3 important themes in the beatitudes that always keep coming up in everything else Jesus teaches us about how to live as his disciples. Already at the beginning of this sermon, Jesus’ words point us to understanding that being his disciples is about:
+
+Living with hope and confidence that God really is in control of history, no matter what happens … if God is in control, then we don’t have to be; and it’s only because of this that we can rejoice even when bad things happen, not because we’re called to be masochists, but because, in the end, the bad stuff won’t win out. God has made us part of something bigger and better – something that lasts; this is also why it’s necessary to read these beatitudes in light of the Resurrection …
+Seeking a deeper relationship with God … being disciples isn’t simply about going through religious motions, but about growing closer to God; “hungering and thirsting for righteousness” isn’t about becoming “self-righteous” but about seeking to grow in our relationship with God, who alone is righteous, which is why over and over again, Jesus contrasts true righteousness with the kind of self-absorbed religiosity of so many people around him…
+Building community with others … over the course of history, lots of religions and spiritual movements have focused only on your own personal sense of spiritual peace or security; but Jesus calls people back to the early vision of God’s covenant, in which God calls people to also make peace with one another, a peace that isn’t simply détente, but that actually promotes community and wholeness with one another …
+So what about us?  How does this big picture vision help us to live as modern disciples of Jesus, both individually and as a congregation?
+
+Today, as we hold our Annual Congregational Meeting, we ought to keep in mind that a Congregational Meeting is really more than an annual duty to elect Council members, pass a budget, and achieve a quorum! Instead, if we do it right, it’s really about looking in big picture at our call to be a community of Jesus’ disciples in the coming year.
+
+And while living as a community of disciples does require paying attention to some details, like elections and budgets, those details are supposed to serve the big picture. And the big picture for us should be the same big picture that Jesus gave to his first disciples in these beatitudes.
+
+As we move into this next year of our life together, Jesus calls us also to be a community of his disciples which:
+
+Lives into the future with hope and confidence, not because we’re sure that everything will go great for us, but because we’re confident that God has made us part of something real and meaningful, and because we’re certain that the future is ultimately in God’s hands; and this is especially important now as we move into a post-Covid time which has accelerated trends in which involvement and interest in churches is dramatically declining; the beatitudes remind us that we’re gathered together to serve and love God not to be popular or successful, but to be faithful to live into God’s future which is still certain, even when the society around us often doesn’t seem to care that much anymore …
+Seeks to deepen our relationship with God – things like “hungering and thirsting after righteousness” begin with seeking to be more closely connected to God. It’s about prayer, reflection, worship and learning.  These are the things which ground us and guide us into being God’s people in the world around us. And they’re the things that we really need Christian community to be able to do. I’m often worried when I read stuff from national and regional church headquarters that seems to suggest that, because fewer and fewer people in our society seem interested in the “religious” aspects of church, maybe we should just focus on the fellowship or the social justice things we do that would appeal to people who aren’t into the “Jesus stuff.” And we do lots of great stuff like that, and we should, but without the hub of a deep and abiding relationship with God, the “wheel” of Christian community will just fall part…
+
+Builds community with others – as with Jesus’ first followers, we’re not only called to deepen our relationship with God, but also to deepen our community with each other; inherent to this idea that those who suffer are blest is the notion that each of us can be an instrument of God’s blessing when we stand with (or even, as Jesus did) sit with somebody we know who’s in a difficult place in their lives right now. One of the things we’ve stressed in the past year, and we will this year also, is the need for us to be together and have fellowship with each other. And part of the reason for that is that it’s by building relationships with each other that we can be God’s agents of help and care in each other’s lives when those times of need inevitably arrive …
+
+Matthew began the Sermon on the Mount by remembering Jesus’ big picture vision of what being disciples of Jesus was all about.  He did that because he knew that without the big picture, disciples can get distracted and lost. We can end up becoming fearful, going through religious motions and forgetting about one another. 
+
+And so these words of Jesus remind us again today of what our mission as disciples is really all about. As followers of Jesus, we’re called each day and each year to be people who seek to deepen and grow in our relationship with God.  We’re called each day and each year to build community with the neighbors God gives us. And we’re called each day and each year to face the future with hope and confidence, not because we know exactly what the future will hold, but because we know our future is in God’s hands.
+
+Amen.
